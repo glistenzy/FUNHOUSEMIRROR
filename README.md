@@ -1,5 +1,8 @@
 # FUNHOUSEMIRROR
-glisten x looey arts stash i have ;ooo
+glisten x looey arts stash i have ;ooo, as a person who uploaded other artist art, i REPEAT, please respect me and them to not save their art. . . esp if its for me
+
+arts here are either gifted to me, commissioned, or i drew it, or got permissioned to save it. 
+(Yumi and Lou are my ocs during the dw boycott)
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/HDPxXQ9t/image.png" alt="image" border="0"></a>
 <a href="https://ibb.co/FbHKr3Xg"><img src="https://i.ibb.co/TBWkf21m/480dc7a9-5f21-4018-899b-ebffd99f5e91.jpg" alt="480dc7a9-5f21-4018-899b-ebffd99f5e91" border="0"></a>
