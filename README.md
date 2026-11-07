@@ -1,6 +1,10 @@
 # FUNHOUSEMIRROR
 glisten x looey arts stash i have ;ooo, as a person who uploaded other artist art, i REPEAT, please respect me and them to not save their art. . . esp if its for me
 
+u can draw me funhousemirror ship here :DD funhousemirror.straw.page
+
+
+
 arts here are either gifted to me, commissioned, or i drew it, or got permissioned to save it. 
 (Yumi and Lou are my ocs during the dw boycott)
 
