@@ -22,7 +22,7 @@ arts here are either gifted to me, commissioned, or i drew it, or got permission
 <a href="https://ibb.co/qY9vc4tZ"><img src="https://i.ibb.co/TMRs7nVC/IMG-8830.png" alt="IMG-8830" border="0"></a>
 <a href="https://ibb.co/Nnrzj3bZ"><img src="https://i.ibb.co/tPz5shF8/Untitled164-20261106141745.png" alt="Untitled164-20261106141745" border="0"></a>
 <a href="https://ibb.co/0p8HdQtS"><img src="https://i.ibb.co/hxh3tCfj/Untitled161-20261106081606.png" alt="Untitled161-20261106081606" border="0"></a>
-<a href="https://ibb.co/C3XvFKDY"><img src="https://i.ibb.co/v6rm84RT/Untitled158-20261104152050.png" alt="Untitled158-20261104152050" border="0"></a>
+<a href="https://ibb.co/k2L8x0LM"><img src="https://i.ibb.co/XxnsbpnV/Untitled158-20261108020553.png" alt="Untitled158-20261108020553" border="0"></a>
 <a href="https://ibb.co/TMWHCCBK"><img src="https://i.ibb.co/QvD655F8/Untitled146-20261028121923.png" alt="Untitled146-20261028121923" border="0"></a>
 <a href="https://ibb.co/93pqjBLt"><img src="https://i.ibb.co/G3dVjGLT/Untitled624-20261022224823.png" alt="Untitled624-20261022224823" border="0"></a>
 <a href="https://ibb.co/gM6dZbfL"><img src="https://i.ibb.co/vxDh4CT6/comm-glistenxlooey-yay.png" alt="comm-glistenxlooey-yay" border="0"></a>
