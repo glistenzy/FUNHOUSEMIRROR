@@ -25,3 +25,5 @@ glisten x looey arts stash i have ;ooo
 <a href="https://ibb.co/WW4BDQ4v"><img src="https://i.ibb.co/nsNQ3TNM/IMG-8112.jpg" alt="IMG-8112" border="0"></a>
 <a href="https://ibb.co/WvyW3jcq"><img src="https://i.ibb.co/QvNFct6z/Untitled995-20260927172951.png" alt="Untitled995-20260927172951" border="0"></a>
 <a href="https://ibb.co/WpYm28gX"><img src="https://i.ibb.co/Lh2VZjny/IMG-7759.jpg" alt="IMG-7759" border="0"></a>
+<a href="https://ibb.co/1YPd1c6t"><img src="https://i.ibb.co/Y41ymgZF/IMG-7717.jpg" alt="IMG-7717" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/BpXNDT5/IMG-6632.jpg" alt="IMG 6632" border="0"></a>
